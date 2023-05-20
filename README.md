@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-<h1 align="center">Hi 👋</h1>
 - 📫  oskar000202@gmail.com
 
 <h3 align="left"></h3>
