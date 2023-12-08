@@ -8,6 +8,6 @@
 
 
 
-![Alt Text](https://media.tenor.com/gTg8ZSZMR6YAAAAC/scaler-create-impact.gif)
+
 
 
